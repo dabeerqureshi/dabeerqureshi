@@ -19,7 +19,7 @@
 
 ### Contact Me
 - 📫 How to reach me:
-  - Email: your.email@example.com
+  - Email: qureshidabeere92@gmail.com
   - LinkedIn: [Dabeer Qureshi](https://www.linkedin.com/in/dabeerqureshi/)
   - Twitter: [@dabeerqureshi](https://twitter.com/dabeerqureshi)
 
